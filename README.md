@@ -41,8 +41,6 @@ i draw them more like
 adults or teenagers
 i dont draw them to 
 much like kids.just an aclaration.
-
-
-thanks for understanding}$$
-
 thanks for understanding
+}$$
+
